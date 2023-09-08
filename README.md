@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MEGA-GAGA
 - 👀 I’m interested in Oxyplot
-- 🌱 I’m currently learning many thing
+- 🌱 I’m currently learning many things
 - 💞️ I’m looking to collaborate on many things
 - 📫 How to reach me by email
 
